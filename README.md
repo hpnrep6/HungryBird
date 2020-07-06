@@ -1,1 +1,1 @@
-Itch.io link: https://hpnrep6.itch.io/hungrybird
+Itch.io URL: https://hpnrep6.itch.io/hungrybird
